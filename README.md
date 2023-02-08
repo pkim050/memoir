@@ -33,5 +33,5 @@ If there is still a chance for me to be your teammate for this position, please 
 Either way, no matter how badly the performance was, I appreciate all your time and getting to a little about me and it was nice to see you both. I got nothing but great vibes from the both of you. <br/>
 I loved how you spoke about how your product works Anika, it seemed like you really care and believe in the product that you work on. That is something I admire and would love to have teammates who view the same way as I do.
 
-Thank you,
+Thank you, <br/>
 Patrick Kim
